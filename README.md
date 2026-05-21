@@ -1,0 +1,1 @@
+# bitiruv-oqshomi-taklifnomasi
